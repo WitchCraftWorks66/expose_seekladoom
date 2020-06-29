@@ -12,3 +12,6 @@ B站up@只有神知道的歌词特效  也就是seekladoom(QQ为1206586470) ，�
 
 2020年1月份他说要去学编程，然后2020年7月了，他还是没有去学习，这是我想他进步他都进步不了啊，seekladoom我叫你去工作去学习你为啥不敢呢？？？
 
+
+另外，在腾讯文档里，也整理了seek的发疯言论： https://docs.qq.com/doc/DRk9KcExQTGtkSXZT
+
